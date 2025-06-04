@@ -1,2 +1,2 @@
 # reasume
-path
+school stuff lwky haha
